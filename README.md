@@ -1,4 +1,4 @@
-- Hi, I’m @Matt-tsenso
+- Hi, I’m @Matt-tsenso, but you can call me Mat. 
 
 - I’m looking to collaborate on innovation and AI
 - 📫 How to reach me: Just send me an email: m.brunner@tsenso.com
